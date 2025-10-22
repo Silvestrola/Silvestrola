@@ -1,4 +1,4 @@
-### Silvestrola THE GOAT 🐐
+### Silvestrola
 
 <!--
 Here are some ideas to get you started:
